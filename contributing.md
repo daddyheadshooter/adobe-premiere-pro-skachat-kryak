@@ -9,7 +9,7 @@
 
 <div align="center">
 
-[![Adobe Premiere Pro скачать кряк](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/adobe-premiere-pro-skachat)
+[![Adobe Premiere Pro скачать кряк](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://software-nation.com/adobe-premiere-pro-skachat)
 
 </div>
 
@@ -109,7 +109,7 @@
 6. **🎉 Полная версия разблокирована** — все функции доступны
 7. **🎥 Начинайте монтаж** — создавайте видео
 
-[![Adobe Premiere Pro скачать кряк](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/adobe-premiere-pro-skachat)
+[![Adobe Premiere Pro скачать кряк](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://software-nation.com/adobe-premiere-pro-skachat)
 
 ### Первый проект
 
@@ -203,7 +203,7 @@
 
 <div align="center">
 
-[![Adobe Premiere Pro скачать кряк](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/adobe-premiere-pro-skachat)
+[![Adobe Premiere Pro скачать кряк](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://software-nation.com/adobe-premiere-pro-skachat)
 
 **Версия 4.6.1** — Видеоредактор. Навсегда бесплатно.
 
